@@ -24,6 +24,6 @@ With fluency in **Spanish, English, and Portuguese**, I specialize in **multicul
 ---
 
 ## **📬 Get in Touch**  
-💼 [LinkedIn]([#](https://www.linkedin.com/in/juan-leon-845914212/))  
+💼 [LinkedIn](https://www.linkedin.com/in/juan-leon-845914212/)
 📧 Email: jmchirinol@gmail.com  
 💻 [Portfolio](#) – Work in progress!
